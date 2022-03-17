@@ -1,2 +1,2 @@
 # Kristinnh14.github.io
-Verkefni 7
+Verkefni 1
